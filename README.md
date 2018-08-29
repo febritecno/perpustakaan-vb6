@@ -2,4 +2,4 @@
 SMK
 
 
-![](https://i.imgur.com/undefined.png)
+![](https://i.imgur.com/4oqKRj9.png)
